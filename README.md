@@ -1,1 +1,0 @@
-# Stefi-Gang-Wallpaper
